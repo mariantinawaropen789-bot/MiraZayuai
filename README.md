@@ -1,2 +1,0 @@
-# MiraZayuai
-Game asik
